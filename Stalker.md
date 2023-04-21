@@ -1,0 +1,31 @@
+# Stalker
+
+- zone is utopia, stalker is ideology, the two as two sides of the brain
+- failed ideology, people dont understand philosophy well, people dont read.
+- crime and punishment failed ubermensch and  failure of transformative philosphy
+- zizek
+- the movie itself is a zone as it morphs itself to any ideology we throw towards it. if this is intentional then tarkovsky is a genius 
+- the dog found family. the zone fulfilled its wish
+- our ideology reconstructs our world everytime
+- freedom, self acceptance, affirmation - peoples incapabiloty to do that
+- people actually died -tarkovsky too - for this film
+- success of philosophy - nothing happens - thats what makes it all the more exciting.
+- if there was an algorithm... (madara infinite tsukuyomi)
+- cure - fumie - cure was fumies death
+- cynicism of the sepia world vs. the innocent child
+- https://www.youtube.com/watch?v=h1VGHVueFyk
+- only martiska in color
+- porcupines story - what he really wanted was money. the mask that eveyone has(but they still avoid it and ignore its exixtance) is just a mask. his mask was the kindness he showed to his brother. but the zone knew. his mask was worthless and the zone fulfilled his real desire. when he went back to the masked reality. his freedom/affirmation was scorned upon and he had to kill himself because of reputation and image. his mask was that important to him.
+- we tavel along with the charachters into the room. we are the primary perspective in the film.
+- the reality that our charachters live in is one of decay. a particular decay that implies that something was green in the past. the zone is green - fresh - alive. communism(or any ideology) is green. the decay is inducstrialization and capitalism . the zone is new ideology - russias triumph into the new world order. but its been misled and disrespected.
+- *"The Zone is a very complicated system of traps, and they're all deadly. I don't know what's going on here in the absence of people, but the moment someone shows up, everything comes into motion. Old traps disappear and new ones emerge. Safe spots become impassable. Now your path is easy, now it's hopelessly involved. That's the Zone." - the stalker*
+- whos the diogenes
+- *"everything that goes on here depends not on the zone, but us."*
+- the zone is capricious. it changes along with us. it evolves around us. the zone is ideology. ideology is meaningless without someone to understand it. every form of understanding comes from interpretation. interpretation is subjective. this subjectivity is key to the realizing of ideology. its always someones interpretation. this makes a very complicated world. yet this is the world we live in. we see what we want to see. this want isnt always explicit. most of the times its subconscious, seemingly irrational. but this is what is inside of us. this is what the writer was frightened of. the world of our true inner deires can be hardly beautiful. its primitive and cynical. its diogenes. 
+- this we see what we want to see aspect of the zone is what makes it like freedom. freedom from the structures of the social farce and the freedom from the strctures of the world even(physics). this ultimate freedom is what makes the zone a "paradise" to the charachters. there, they can be who they truly are.
+- *Monkey is shown in full color because she is part of the zone. In the final Stalker speech the wife asks to be taken to the zone but the Stalker refuse saying- what if we fail again? Monkey is a wish child, a product of the Stalker’s earlier visit to the room. He thinks he failed because Monkey is crippled, but he doesn’t understand that suffering and happiness are linked*
+- zone(dog) granted matriskas wish, because she is free - a child. her wish for accessibility - stunted by her polio - manifested in the ulimatum, with a full-on telekinetic prowess. 
+- *"The zone doesn't symbolize anything - the zone is a zone, it's life, and as he makes his way across it a man may break down or he may come through. whether comes through or not depends on his own self respect and his capacity to distinguish between what matters and what is merely passing."*
+- *"If the regular length of a shot is increased, one becomes bored, but you keep on making it longer, it piques your interest, and if you make it even longer, then a new quality emerges, a special intensity of attention."*
+- *"What is essentially human and eternal in each individual and which all too often a person will pass by even though his fate lies in his hands. He is too busy chasing after phantoms"*
+- the philosopher and the scientist not understanding spirituality and religion. the stalker is the vessel of religion - a prophet, a saint. the room is spiritual enlightenment? god? Tarkovsky was deeply religious and so this was what he was probably wanting to portray. This is  very similar to crime and punishment in many ways. I dislike when religion or its effects are glorified like this because i think that humanity doesnt need to believe in a farce to save itself. Clarity can save many people. Not vague idols or ancient texts. the writer is a very analytical person. he thinks about stuff thats actually important, he thinks about thinking. Positivity shouldnt have faulty pillars. Id rather take pessimism than that. 
